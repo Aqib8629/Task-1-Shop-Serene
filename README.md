@@ -1,1 +1,1 @@
-https://www.github.com/design/dNeTIdEC4LHMJEHJMJAX7f
+https://www.figma.com/design/dNeTIdEC4LHMJEHJMJAX7f
